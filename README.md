@@ -1,1 +1,2 @@
-# BOMBS
+# SUPER FAST SMS BOMBING CREATE BY WASIM-360
+https://wasim-360.github.io/BOMBS/
